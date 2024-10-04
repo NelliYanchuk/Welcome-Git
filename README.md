@@ -1,8 +1,10 @@
 ## Hola a tod@s!
 
-Soy Nelli de Ucrania. 
-Desde 2022 ano vivo en marvelos Espana.
-Quero estar la parte de este socialidad. 
+Soy Nelly de Ucrania. 
+Desde 2022 vivo en la maravillosa España. 
+Quiero ser parte de esta sociabilidad. 
 
 Gracias para tenerme,
 Nelli Yanchuk
+
+My LinkedIn: https://www.linkedin.com/in/nelli-yanchuk-a24b81138/
